@@ -11,3 +11,5 @@ konsultasi
 085624371576
 085624371576
 https://www.deviantart.com/aditpkl/art/Jasa-pengurusan-legalitas-usaha-UMKM-Saguling-1115951435
+https://share.evernote.com/note/bffda891-3e94-0f58-292a-21add1aad427
+
